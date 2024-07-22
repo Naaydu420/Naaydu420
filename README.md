@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... sleeping on a very fluffy comfertable bed in a field with clear blue sky with scattered coulds and wind(i hope u get it)
 - 🌱 I’m currently learning ... secret of laziness 
 - 💞️ I’m looking to collaborate on ... increasing world population 
-- 📫 How to reach me ...  if you are a close one then that's an invalid question and if you arn't thae don't bother 
+- 📫 How to reach me ...  if you are a close one then that's an invalid question and if you arn't then don't bother 
 - 😄 Pronouns: ...  sam/sung
 - ⚡ Fun fact: ...  when you breathe you intake air 😱
 
